@@ -9,7 +9,7 @@
 - pls dont ship, this goes to every skins.
 - im okay with cuddle, hug or boop!
 - pls dont be a dick wad about my skin or how i shade.
-- i have yumes, and if a pony have a heart, that is the yumes.
+- i am a non-sharing yumeshipper, and if you see a skin have a heart, that is one of the yumes.
 - ^^ do not say your a bigger fan or anything, i will hard hide/block you.
 - u can interact but beware i might not talk much
 - ^^ but if we get to know more, i will probably be more comfortable
